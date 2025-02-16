@@ -1,5 +1,4 @@
-- 👋 Hi, I’m @Priyanshi
-- 👀 I’m interested in drawing.
+- 👋 Hi, I’m @Priyanshi.
 - 🌱 I’m currently a student at Amity University.
 - 📫 How to reach me....
   Linkedin:www.linkedin.com/in/priyanshi-chaudhary-466508328
